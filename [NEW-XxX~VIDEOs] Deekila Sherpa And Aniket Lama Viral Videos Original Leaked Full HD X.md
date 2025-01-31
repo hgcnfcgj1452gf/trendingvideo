@@ -2,7 +2,11 @@
 
 Splitsvilla couple Deekila Sherpa and Aniket Lama full video goes viral on Twitter/X and Instagram
 
-However, she went viral on Monday, 27 January after a video allegedly featuring Deekila Sherpa and a man allegedly believed to be her ex-boyfriend Aniket Lama, a former contestant of MTV’s popular reality show Splitsvilla, spread online. The controversial video, which involves the Splitsvilla couple has spread like quickfire on social media accounts although the two are yet to comment on it.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 During the episode of MTV Splitsvilla X5, she had revealed that her ex-boyfriend, Aniket Lama, whom she dated for 3 years, had cheated on her in 2023.
 

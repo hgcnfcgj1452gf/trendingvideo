@@ -1,6 +1,10 @@
 En los últimos días, un video viral de una pareja en Cartagena ha captado la atención de miles de usuarios en las redes sociales. El contenido muestra a una pareja teniendo relaciones sexuales en un yate en plena bahía de Cartagena, Colombia.
 
-Este suceso ha generado un amplio debate sobre la privacidad, la legalidad y el impacto de las redes sociales en situaciones íntimas.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
 ¿Dónde buscan el video filtrado de la pareja en un yate de Cartagena?
